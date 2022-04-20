@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @pankeviciute-bukauskiene
+- 👀 I’m interested in cancer metabolism
+- 🌱 I’m currently learning PhD in Biophysics
+- 📫 How to reach me monika.pankeviciute-bukauskiene@lsmu.lt
